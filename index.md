@@ -1,10 +1,7 @@
 # Karina Kato
 
-## LinkedIn:
-https://www.linkedin.com/in/karina-kato-4b2a56182/
-
-## Github:
-https://github.com/tiemi
+### [LinkedIn](https://www.linkedin.com/in/karina-kato-4b2a56182/)
+### [Github](https://github.com/tiemi)
 
 ## Apresentações
 
